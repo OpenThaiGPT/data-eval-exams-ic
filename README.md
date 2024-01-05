@@ -1,6 +1,8 @@
 # Thai Investment Consultant (IC) Exams 
 https://www.niets.or.th/th/catalog/view/630
+
 by 
+
 Dr. Kobkrit Viriyayudhakorn
 (kobkrit@iapp.co.th)
 
