@@ -1,5 +1,5 @@
-# Thai Investment Consultant (IC) Exams 
-https://www.niets.or.th/th/catalog/view/630
+# Thai Public Investment Consultant (IC) Exams 
+https://www.set.or.th
 
 by 
 
